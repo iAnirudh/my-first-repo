@@ -11,6 +11,7 @@ Three of my favorite books are:
 - *Steve Jobs* by Walter Isaacson
 
 
-###Contact
+### Contact
+
 You can hit me up on my [LinkedIn page](https://www.linkedin.com/in/anirudh-srivastava-a09950130/)
 
